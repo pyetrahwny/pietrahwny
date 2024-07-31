@@ -1,1 +1,1 @@
-oi sou a # pietrahwny, gosto de morango gatinhos 
+oi sou a # pyetrahwny, gosto de morango gatinhos 
